@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @av0man
+- 👀 I’m interested in ... your mum
+- 🌱 I’m currently learning ... cooking, for your mum
+- 💞️ I’m looking to collaborate on ... you know who!
+- 📫 How to reach me ... ask your mum, and also avoman369@gmail.com
